@@ -2,4 +2,4 @@
 just another repository
 
 Hi i am twinkle !
-trying to make a new twinkle of me !
+trying to make a new version of me !
